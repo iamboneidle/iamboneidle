@@ -5,7 +5,7 @@
 - Currently I'm interested in keeping learning programming stuff and finding a job or an internship, I hope by the end of the year I will have this done.
 - You can reach me these ways:
   > + E-mail: fyodorpanfilov@gmail.com
-  > + Telegram: https://t.me/iamboneidle
+  > + Telegram: @iamboneidle
   > + Instagram: @iamboneidle
-  > + VK: https://vk.com/iamboneidle
-  > + Telegram channel: https://t.me/iamphotoidle
+  > + VK: @iamboneidle
+  > + Telegram channel: @iamphotoidle
