@@ -1,4 +1,4 @@
-## Hi, I’m @iamboneidle
+## Hi, I’m Panfilov Fedor
 - I’m interested in programming, math, learning different (human) languages, playing guitar.
 - I’m currently learning WEB development, using Java + Spring + SpringBoot and Python + django + django rest framework. Also I have leanrned JS + React a little bit to implement
   my ideas of visual stuff in my pet projects
