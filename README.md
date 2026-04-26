@@ -18,7 +18,7 @@ I'm working as a DevOps engineer in Nexign company, based in Saint-Petersburg.
 
 - You can reach me via:
   > + E-mail: fyodorpanfilov@gmail.com
-  > + Telegram: @iamboneidle
+  > + Telegram: @iamworkidle
   > + Instagram: @iamboneidle
   > + VK: @iamboneidle
-  > + Telegram channel: @iamphotoidle
+  > + Telegram channel: @oopshappens
